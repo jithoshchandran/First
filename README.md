@@ -1,1 +1,1 @@
-# First master
+# First master thats enough
